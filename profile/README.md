@@ -1,4 +1,4 @@
-![Wavey Group](https://i.imgur.com/9pcDlkH.png "Wavey Group")
+![Wavey Group](https://i.imgur.com/ol7dIxj.png "Wavey Group")
 
 <br>
 👋 Hiyaa! We are Wavey, a creative agency & software house based in Glasgow, Scotland. For years, we have watched on as companies grow, thrive in the space, but their is always something missing, and that is where we come along. Paving the way for agencies around the world with our workforce, methodology and passion for the world of design and code. 
